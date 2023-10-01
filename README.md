@@ -1,1 +1,1 @@
-# V-y-G-Tam-T-i-C-ch-Xem-V-y-Chi-n-K-T-t-X-u-T-33WIN
+Vảy Gà Tam Tài – Cách Xem Vảy Chiến Kê Tốt Xấu Từ 33WIN -  - https://33win.ws/vay-ga-tam-tai/
